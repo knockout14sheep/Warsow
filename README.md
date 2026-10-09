@@ -209,4 +209,4 @@ Warsow is available as a complete free version. You can download and enjoy all f
 Get ready to dive into the world of **Warsow**! Download now and join the battle for free!
 
 ---
-**Last updated:** 2026-10-09 13:54:17 UTC
+**Last updated:** 2026-10-09 19:06:22 UTC
